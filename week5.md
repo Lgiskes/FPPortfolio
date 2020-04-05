@@ -5,6 +5,8 @@
 Deze week was chaotischer dan gewenst. Dit is gekomen omdat we het plan van aanpak in moesten leveren voor het einde van de week.
 Dit bleek een groter probleem dan gewenst. Dit had ik kunnen zien aankomen. Ik had als planner af kunnen spreken om tijdens de vakantie af te spreken om aan het plan van aanpak te werken. Dit heb ik niet gedaan omdat ik de taak heb onderschat.
 Hierdoor kwam de rest van het project onder druk te staan. Volgende keer moet ik duidelijk en optijd van tevoren afspreken met de groep over oplevermomenten.
+Ook was er aan het einde van de week communicatieve problemen, er bleek pas vrijdag dat men niet uit een probleem is gekomen om een map te ontwerpen in Tiled.
+Dit vond ik niet fijn en had hier niet op gepland met de planning. Dus ik heb besloten om bij de volgende vergadering dit punt te bespreken.
 
 ##Inhoudelijke reflectie
 De projectdag waren we grotendeels bezig aan het werken aan het plan van aanpak. Hierom heb ik niet heel veel gewerkt aan het project.
